@@ -1,0 +1,1 @@
+HFA which is Healthy Future Africa, was created by Chinjie Sylvester N. to aid in the provision of quality healthcare to low and middle income earners. by creating a virtual interactive platform that brings together healthcare practitioners and patients while maximising the availability of quality health information to the less privileged potion of the African population. 
